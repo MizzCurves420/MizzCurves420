@@ -14,4 +14,5 @@ Here are some ideas to get you started:
 - 😄 Pronouns: 
 - ⚡ Fun fact: I helped build a Tesla Coil once and it played music. I took Hunter safety one weekend with my ex husband for a date idea lol.
 -->
-Run
+I am a lot of potential in a stoners body. 
+
